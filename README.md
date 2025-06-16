@@ -1,0 +1,2 @@
+# FakhamahTradeBot
+دتؤؤميويكيز
